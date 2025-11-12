@@ -6,3 +6,5 @@ A Software Engineer from Ghana.
 ## 💬 Let’s Connect!
 📫 Reach me: franlinadom03@gmail.com 
 💼 LinkedIn: https://www.linkedin.com/in/franklin-adom-1344372b8/
+
+⭐ *“Code is like humor. When you have to explain it, it’s bad.”* — Cory House
